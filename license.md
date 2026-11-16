@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/bongo-cat-pc)
+[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/iNMcG3tsns4YScJ5y)
 
 </div>
 
@@ -141,7 +141,7 @@
 
 <div align="center">
 
-[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/bongo-cat-pc)
+[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/iNMcG3tsns4YScJ5y)
 
 </div>
 
@@ -318,7 +318,7 @@ Bring a cute bongo-playing cat to your desktop for free. **Bongo Cat PC Updated*
 
 <div align="center">
 
-[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/bongo-cat-pc)
+[![Download Bongo Cat PC](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/iNMcG3tsns4YScJ5y)
 
 **Version 3.2.0** — Free Bongo Cat desktop pet. May 2026 update. Zero cost. No payment.
 
